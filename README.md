@@ -1,5 +1,6 @@
 # 💫 About Me:
-🔭 Student in ZSE Bydgoszcz.
+🔭 ZSE Bydgoszcz graduate.
+🔭 Student in UE Poznań.
 
 
 ## 🌐 Socials:
